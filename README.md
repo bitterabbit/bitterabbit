@@ -1,12 +1,3 @@
-
-2008 user , kuroshitsuji is life !! ♡
-❝ they protected something nonexistent, they even died for it! but this is just how humans are, sebastian! ❞ they / them.
- 
-![image](https://github.com/user-attachments/assets/7049d8ce-9e77-4d34-a677-1ffee7406643)
-
-
-❝ how sad it would be, should laughter disappear... ❞ i am obsessed with black butler, yes !! (even read the manga for more...)
- 
-![image](https://github.com/user-attachments/assets/d5209f01-9aad-47ef-a228-ad784b3564c3)
- 
-౨ৎ dni sebaciel.
+![image](https://github.com/user-attachments/assets/a1b03a6b-b44d-406a-b299-9d24d2716a7b)
+౨ৎ that one ciel... i don't talk, i usually just sit there and i don't mind cuddles, that's it.
+ ౨ৎ i live for kuroshitsuji... (dni sebaciel)
