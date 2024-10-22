@@ -6,3 +6,5 @@
  ✦ dni sebaciel (block)
 
  次要的。我真的很喜歡黑執事，我不能容忍模仿者（尤其是那兩個嘲笑我的人），我不會忘記。
+
+✦ one day i will collide and become the only ciel in existence.
